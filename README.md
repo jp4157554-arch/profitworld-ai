@@ -1,1 +1,1 @@
-# profitworld-ai
+KwanZAi Earn
